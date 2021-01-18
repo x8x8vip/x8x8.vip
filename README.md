@@ -3,4 +3,7 @@
 一、阿狸社区：<a href="https://ali.cn.com">ali.cn.com</a></br>
 二、杏花影院：<a href="https://www.x8x8.vip">x8x8.vip</a></br>
 三、一品影院：<a href="https://www.epccmovie.com">epccmovie.com</a></br>
-四、金牛影院：<a href="https://www.jinniuvideo.com">jinniuvideo.com</a>
+四、金牛影院：<a href="https://www.jinniuvideo.com">jinniuvideo.com</a></br>
+
+五、一品娱乐：<a href="https://www.xiuluo.ru/360baidu/yipin2.html">一品娱乐</a></br>
+六、金牛娱乐：<a href="https://www.xiuluo.ru/360baidu/jinniu3.html">金牛娱乐</a>
